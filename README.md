@@ -1,4 +1,4 @@
-# Our new project
+# Our Heartstones
 
 ## Tonya Oliver: mother and skilled jewelry maker
 
